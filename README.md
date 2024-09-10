@@ -3,7 +3,7 @@
 
 - 👨‍💻 My Homepage [https://xavierxinchi.github.io/](https://xavierxinchi.github.io/)
 
-- 📫 How to reach me **sgxshi6@liverpool.ac.uk**
+- 📫 How to reach me **xs2553@columbia.edu**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
